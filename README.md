@@ -5,5 +5,5 @@
 - 👯 I’m looking to collaborate with vojjtar adn OverdosedCZ 
 - 🤔 I’m looking for help with finding a girlfriend
 - 💬 Ask me about how sad i am
-- 📫 How to reach me: you cant
+- 📫 Cant you how reach me
 - ⚡ Fun fact: i am hi
